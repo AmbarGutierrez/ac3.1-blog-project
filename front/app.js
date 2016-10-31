@@ -1,1 +1,0 @@
-//App coming soon
